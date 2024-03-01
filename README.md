@@ -1,3 +1,5 @@
+**Who Played Wednesday Addams? The Sinister Evolution**
+
 The world of pop culture has countless iconic families. And the first collective that comes to many generations of people’s minds is none other than the Addams family, specifically the core members Morticia, Gomez, Wednesday, and Pugsley. Everything from their signature black attire to their creepy and kooky theme song (with necessary snapping) makes them continue to stand out from the TV and film fictional family crowd. And, it seems that we cannot get enough of the Addams family decades after their 1938 newspaper comic debut in The New Yorker. The latest Addams family content is Wednesday, a Netflix series centering around Morticia and Gomez’s fascinating daughter.
 
 MGM Television/Paramount Pictures/Netflix
